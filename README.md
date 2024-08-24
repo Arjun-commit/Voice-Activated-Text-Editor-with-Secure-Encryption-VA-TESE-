@@ -1,0 +1,1 @@
+# Voice-Activated-Text-Editor-with-Secure-Encryption-VA-TESE-
